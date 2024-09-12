@@ -29,7 +29,7 @@
 
 :man_technologist: Open to work
 
-:video_game: I own around __1000 games__ in Steam/Epicgames/Origin/Ubisoft, pero but I never play.
+:video_game: I own around __1000 games__ in Steam/Epicgames/Origin/Ubisoft, but I never play.
 
 :motorcycle: CBR 500R owner
 
